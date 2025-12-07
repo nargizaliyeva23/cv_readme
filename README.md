@@ -114,7 +114,7 @@ I’m constantly learning, practicing, and improving my analytical & technical a
 
 ## 📬 Contact
 
--  Email: **n07241319@gmail.com** 
+-  📧: **n07241319@gmail.com** 
 
 -  [🔗 LinkedIn](https://www.linkedin.com/in/nargiz-aliyeva-738375335)
 
